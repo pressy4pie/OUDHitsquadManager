@@ -11,4 +11,4 @@ have md5sums of things like recovery images.
 
 
 
-![Alt text](https://plus.google.com/u/0/+ConnorRigby/posts/6pShr3BXS45?pid=6045272714467450946&oid=106799397971832337924 "Meep.")
+![Alt text](http://pressy4pie.com/pictures/oudhs.png "Meep.")
